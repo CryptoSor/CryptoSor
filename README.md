@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CryptoSor
+- 👋 Hi, I’m @CryptoSorfd
 - 👀 I’m interested in ...vb
 - 🌱 I’m currently learning ...-00
 - 💞️ I’m looking to collaborate on ...
