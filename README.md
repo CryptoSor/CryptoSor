@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...gfh
 - 😄 Pronouns: ...54546645
-- ⚡ Fun fact: ...56
+- ⚡ Fun fact: ...562+
 6626
 <!---652
 CryptoSor/CryptoSor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
