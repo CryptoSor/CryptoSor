@@ -1,9 +1,7 @@
 - 👋 Hi, I’m @CryptoSorfd
 - 👀 I’m interested in ...vb
 - 🌱 I’m currently learning ...-00
-- 💞️ I’m looking to collaborate on ...5263+
-- 📫 How to reach me ...gfh
-- 😄 Pronouns: ...54546645
+- 💞️ I’m looking to collaborate on ...5263dgf
 - ⚡ Fun fact: ...562+
 6626
 <!---652
